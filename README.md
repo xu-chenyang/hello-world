@@ -8,3 +8,4 @@ response from earth wo got, and they think we are joking!
 so whats our next move?
 
 whatever, we have to make another statement for now.
+Agreed! lets make another one, and this time, it wont be only words!
