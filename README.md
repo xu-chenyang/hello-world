@@ -6,3 +6,5 @@ we decide to step out and take a move to take over earth.
 
 response from earth wo got, and they think we are joking!
 so whats our next move?
+
+whatever, we have to make another statement for now.
